@@ -1,4 +1,4 @@
-THE WILL YOU SNAIL? DISCORD CONSITUTION
+# THE WILL YOU SNAIL? DISCORD CONSITUTION
 
 ## Introduction
 We, the people of the Will You Snail? Discord server, adopt the constitution of the Will You Snail? Discord server.
