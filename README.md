@@ -1,7 +1,7 @@
 # THE WILL YOU SNAIL? DISCORD CONSITUTION
 
 ## Introduction
-We, the people of the Will You Snail? Discord server, adopt the constitution of the Will You Snail? Discord server.
+We, the snails of the Will You Snail? Discord server, adopt the constitution of the Will You Snail? Discord server.
 
 ## Citizenship
 Citizenship is granted for everyone planning to stay here for time more than 1 week
