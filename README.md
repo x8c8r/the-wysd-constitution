@@ -13,7 +13,7 @@ Citizens, citizenship of which has lasted for more than 5 months are allowed to 
 President, members of the parliament and other positions of power are chosen through democratic elections as well as by the president
 
 ## Rights
-As a citizen you are granted freedom of speech, freedom of posting and right to own a thread
+As a citizen you aren't granted freedom of speech, freedom of posting and right to own a thread
 
 ## Judicial system
 Justice shall be administered by AI Overlords
